@@ -5,7 +5,15 @@
 > 探讨意识永存，我想永生
 
 
+## 2019-06
+> Can you emptying yourself for 10 minutes everyday?
+> Yes, it's hard.
 
+
+| 一| 二| 三| 四| 五| 六| 日|
+|:-:|:-:|:-:|:-:|:-:|:-:|:-:|
+| | | | | | 21 | 22 |
+| | | | | | start |  |
 
 
 ## 2019-04-25
