@@ -2,8 +2,8 @@
 
 > Physics, biochemistry, neurobiology, variety， discuss life always live.
 > 探讨意识永存，我想永生，谁不呢？
->
-> - [SCHDEULE](./SCHEDULE.md)
+
+
 
 ## 我的日常
 
